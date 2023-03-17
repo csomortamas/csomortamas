@@ -1,1 +1,1 @@
-### 💎Csomor Tamás💎 ###
+### Csomor Tamás ###
